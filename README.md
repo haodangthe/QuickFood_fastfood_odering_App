@@ -1,1 +1,0 @@
-# QuickFood_fastfood_odering_App
